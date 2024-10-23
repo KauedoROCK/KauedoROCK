@@ -1,4 +1,4 @@
-## Oi me chamo Kaue🤙
+## Oi me chamo Kauê🤙
 
 ##### meu genero é Rock e o meus pronomes são and Roll🔥💀
 
